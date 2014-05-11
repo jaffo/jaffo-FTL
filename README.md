@@ -1,1 +1,1 @@
-my faster than light save files
+my FTL: Faster Than Light save files
